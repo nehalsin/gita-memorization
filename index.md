@@ -102,4 +102,24 @@
 8. Seeing onwself in shlok is resonance. G6.20
 9. Resonance is bliss. G6.21-2
 
+## 2021-11-19
+6.20
+
+12.3
+
+### Insights
+
+- 6.20
+1. Katapayadi value of second line "atma" like terms comes out to be 5.
+2. Starting term of each has Katapayadi value 1. 
+
+- 12.3
+1. 8 adjectives
+
+## 2021-11-20
+12.4 
+
+### Insights
+1. Verse begins with alphabet which is also the alphabet with which previous verse second line begins. 
+2. Starting alphabet and ending alphabet of the second line of the verse is same. 
 
